@@ -1,1 +1,0 @@
-# HOW TO GET STARTED
